@@ -217,4 +217,4 @@ DJ ProDecks is available as a **full free version** with **all features** and **
 Get started today with DJ ProDecks and elevate your music mixing to the next level! Download now for free!
 
 ---
-**Last updated:** 2026-09-25 23:42:00 UTC
+**Last updated:** 2026-09-26 02:37:40 UTC
